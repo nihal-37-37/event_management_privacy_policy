@@ -189,4 +189,4 @@ Please review this Privacy Policy periodically. Changes are effective when poste
 
 If you have any questions about this Privacy Policy, you can reach us:
 
-- **Email:** workshopmanagementapp@gmail.com
+- **Email:** chandwani.nihal123@gmail.com
